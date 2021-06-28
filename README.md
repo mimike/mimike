@@ -2,11 +2,11 @@
 
 
 
-- 🔭 I’m currently working on enjoying life.
+- 🔭 I’m currently working on finding structure while creating space for play.
 - 🌱 I’m currently learning how to balance work and rest.
 - 👯 I have been teaching yoga, dance and aerial for the past decade ++
-- 🤔 I enjoy slow travel.
-- 💬 Ask me about circus & aerial dance
+- 🤔 I enjoy slow travel. 
+- 💬 Ask me about my weirdest travel memory & aerial dance
 - 📫 How to reach me: mimi.g.ke@gmail.com
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I tie knots and climb fabrics. 
