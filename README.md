@@ -2,7 +2,6 @@
 
 
 - ⚡  Fun fact: I tie knots & climb fabrics.
-- 💬  Ask me about my weirdest travel memory.
 - 📫  How to reach me: mimi.g.ke@gmail.com
 - 😄  Pronouns: she/her/hers
  
