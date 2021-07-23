@@ -2,6 +2,7 @@
 
 
 - ⚡  Fun fact: I tie knots & climb fabrics.
+- 👀 I'm currently working on a travel app and learning Typescript.
 - 📫  How to reach me: mimi.g.ke@gmail.com
 - 😄  Pronouns: she/her/hers
  
